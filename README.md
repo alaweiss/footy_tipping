@@ -1,1 +1,0 @@
-# footy_tipping
